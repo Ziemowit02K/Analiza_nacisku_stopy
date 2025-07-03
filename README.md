@@ -1,0 +1,1 @@
+# Analiza_nacisku_stopy
